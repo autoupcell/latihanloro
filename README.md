@@ -1,0 +1,2 @@
+# latihanloro
+mbuh
